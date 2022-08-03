@@ -1,0 +1,1 @@
+# Kartini-Copa_16521489_IF-J_DiarySPARTA
